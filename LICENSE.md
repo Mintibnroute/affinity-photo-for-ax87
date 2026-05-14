@@ -1,4 +1,4 @@
-# 
+# premium Filter for Affinity Photo for macOS - vector export and cloud sync is the best Affinity Photo for macOS filter, featuring vector export and cloud sync. Safe, efficient,
 
 
 
